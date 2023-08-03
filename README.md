@@ -1,1 +1,2 @@
 # Latihangit
+aku suka kamu
